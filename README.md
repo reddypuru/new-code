@@ -1,1 +1,7 @@
 # new-code
+hii this is purushotham
+i am writing a code
+and i am excute the coding
+by collegues testing
+final excute the gode and perform the operation
+manger approval
